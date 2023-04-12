@@ -1,5 +1,5 @@
 # eBot_mac_x
-   https://youtube.com/shorts/TZ7WnxZ2XUE?feature=share
+   
     
     # Introduction 
     
